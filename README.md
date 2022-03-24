@@ -1,2 +1,5 @@
-# kingdom-guard-cheat-codes-unlimited-gems-glitch
-Kingdom Guard Cheat codes unlimited gems glitch that work
+# Kingdom Guard Cheat codes unlimited gems glitch that work
+
+Kingdom Guard Cheat codes unlimited gems glitch that work iOS android - Even if you are not in the game, the vault will passively generate gold for you. Although the vault already has a fairly good gold generation speed, you can further increase this speed by assigning heroes to the vault at the cost of unlocking each slot to obtain a large number of gemstones. Please note that there is a limit to how much gold the vault can hold before it needs to be emptied manually. Although Kingdom guard is a very compact game with only a few main resources, such as gold, stones and gemstones, you still need a lot of resources. Gold is a common currency. In the Royal Guard, it is used to pay many expenses: Army upgrading, castle construction, training troops, etc. Due to the large amount of Kingdom Guard exchange codes 2022 used, there are many ways to collect gold - completing egg tasks and daily tasks, server recording achievements, playing TD or collecting gold in gold mines are just some ways to collect shiny items.
+
+<a href="https://windmod.icu/kingdom-guard/">try here</a>
